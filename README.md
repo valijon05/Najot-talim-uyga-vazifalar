@@ -1,1 +1,0 @@
-# Najot-talim-uyga-vazifalar
